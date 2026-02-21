@@ -27,5 +27,3 @@ Located along the rugged Shipwreck Coast, Port Whisper is a small, damp town whe
 1. **Book 1: The Sentinel's Grift** (In Progress)
     - *Eddie inherits the lighthouse and discovers the elevator while trying to hide from a debt collector.*
 
----
-*Created by Jules (AI Assistant)*
